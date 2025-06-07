@@ -1,9 +1,3 @@
-# Just with Units
-
-***How to create a smoother more even composition***
-
-
-
 ![Bildschirmfoto 2025-05-31 um 17.24.00.png](https://res.craft.do/user/full/ce92c3bc-bf1f-2f0e-e611-560f02f61cc0/doc/37a2d212-9359-45ac-8a9b-ebdf231b405b/8F901933-F8EE-4619-9E55-ABF37EB883EB_2/aK6MdB9y1Hv3UyTwvgD0FGkp4VCsYhdCBnOzQNOJq8kz/Bildschirmfoto%202025-05-31%20um%2017.24.00.png)
 
 
